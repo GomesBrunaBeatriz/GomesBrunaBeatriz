@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GomesBrunaBeatriz
+- 👀 I’m interested in  aprender novos conteúdos   
+- 🌱 I’m currently learning  criar sites em CSS e  HTML
+- 💞️ I’m looking to collaborate on  qualquer coisa que precisar
+-📫 How to reach me : pelo o  e-mail =  brunainscricoes16@gmail.com
